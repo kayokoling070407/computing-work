@@ -1,0 +1,55 @@
+I copy from @isabxllecheah
+
+# IDEAS FOR TEACHERS DAY #
+### SUBJECTS ##
+- *higher chinese: ms hon*
+  - xiao long bao (JC)
+  - shi jian bu zao le (from the dian you)
+  - she sell porridge ahaha
+  - zao sheng gui zi *whoops*
+  - "okay,lai tong xue men-"
+- *geograpy: mr chan*
+  - scam/scammer (cruz)
+  - basic services
+- *science: mrs ong*
+  - R.I.P gummy bear :(
+  - sword wielding skills 
+- *history: ms poh*
+  - " *guys*. i was once a student too">_<
+  - her shoe size :O
+  - " *guys*. i was once a student too" >_<
+  - " your peel para is too short!"
+- *english: ms vaz*
+  - if you know what you know *✅*
+  - if you know what you don't know *✅*
+  - if you dont know what you dont know *😒*
+  - if you dont know what you know *gondu mati muthu sami*
+  - goondu/stupid/idiot
+  - 2 marks if you write a diff language :D
+  - 1 mark when you write gibberish :D
+  - kthxbye
+  - <slams door>
+  - Gu, Quake, Liu, Ma, Kong (surnames of boys)
+- *math: ms low*
+  - she was talking to the marker and the pen then later on she talked to the whiteboard
+  - no arc no MARK
+  - hot favourite :D
+  - stand in class as punishment
+  - bankers are loan sharks  -shhhh- cannot use microphoneeee
+  - potato chips :)
+  - math PAU is not so delicious :(
+  - yeezhi got married with Nadia and went to buy air-con and even went to honey moon!! HAHAHA
+  - practice 脑
+  - algebra 💕s youu 
+  - *offs mic during google meet and doesnt realise we cant hear her*
+- *e-lit: ms syikin*
+  - she's leaving for maternity leave :(
+  - its a boy
+  - is it actually a boy
+  - "You must analyse!!!"
+  - "Don't copy the evidence for analysis!"
+  - *does the row last to stand up game*
+- *malay: mdm nora*
+  - cantiknyaaa
+  - qiao ke li
+  - "if you want to go toilet, u must ask in malay"
